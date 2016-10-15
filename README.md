@@ -1,0 +1,2 @@
+# szkody-cloned
+saljsflas
